@@ -4,7 +4,7 @@
 
 Sou novo no mercado da programação e aqui no GitHub, se algum recrutador ou usuário puder me dar um Feedback de como posso melhorar ficaria muito grato.
 
-Tenho 22 anos, sou apaixonado por tecnologia e programação me guia. Minha curiosidade e abordagem analítica me impulsionam. Não gosto de ficar parado, sempre quero descobrir mais com ênfase no desenvolvimento contínuo, planejamento cuidadoso e organização meticulosa. Com um estilo proativo e centrado, busco sempre clareza em meus processos para alcançar resultados tangíveis.
+Tenho 23 anos, sou apaixonado por tecnologia e programação me guia. Minha curiosidade e abordagem analítica me impulsionam. Não gosto de ficar parado, sempre quero descobrir mais com ênfase no desenvolvimento contínuo, planejamento cuidadoso e organização meticulosa. Com um estilo proativo e centrado, busco sempre clareza em meus processos para alcançar resultados tangíveis.
 
 🖖Vida Longa e Plena a Todos.
 
